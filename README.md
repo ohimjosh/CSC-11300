@@ -7,3 +7,4 @@ Lecture
 
 Ahmet Yuksel
 
+https://drive.google.com/drive/folders/1_yYxwePNThKQxxbI2RdqtD8zhTIRTGVX?usp=sharing
